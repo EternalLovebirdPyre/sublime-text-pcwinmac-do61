@@ -1,4 +1,4 @@
-# 
+# Mejor Sublime Text plugins para Mac OS | Premium Sublime Text plugins para PC Windows. Con mercado de extensiones y scripts previos a la solicitud — optimizado para el máximo rendimiento en cada plataforma.
 
 
 
